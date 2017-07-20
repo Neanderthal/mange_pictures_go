@@ -1,0 +1,1 @@
+# mange_pictures_go
